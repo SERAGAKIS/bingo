@@ -1,19 +1,27 @@
 broski/samuel
+
 gamer get chicks get money ez wins
+
 cishet guy
-typical "my opinion is-" "kys" idv player
+
+typical kys spammer idv player
 
 
 not in any fandoms
 
 
 i like
+
 DINOSAURS, boobs, rpgs, pasta, keqing, vera, mona, snakes
 
+
 im ok with
+
 joe, hxs, ships in general, irls/systems, neos like xe it whatever
 
+
 i dont like
+
 cats, over the top xenogenders/neos, *genshin fandom(friends r ok)
 
 
@@ -30,6 +38,7 @@ super hot and sexy.. so.. hot girls with anime boobs hmu..
 
 
 i have a father and loads of milk
+
 shoutout to marg and trish for letting me third wheel fr
 
 "why are u named broski" in 3rd grade i wanted to seem cool and manly. its never changing. ull get used to it
