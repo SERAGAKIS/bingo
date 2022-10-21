@@ -1,7 +1,11 @@
 hi im broski
+
 he/him
+
 idv fans dont mind the username its old and idk how to change it
+
 using this as a link to my RENTRY because PATREON KEEPS FUCKING BANNING MW
+
 
 clickity click https://rentry.co/idvgin
 
